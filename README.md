@@ -1,16 +1,16 @@
-## Hi there 👋
+## bem vindos ao meu perfil 👋
+Meu nome é Gabriella Hernandez de Jesus
+- Etou começando em tudo na vida
+- Sou aluna no ensino medio
+- Procuro estudar psicologia
+- O professor mandou fazer isso
 
-<!--
-**Gabizonaa/Gabizonaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Vão me seguir😉
 
-Here are some ideas to get you started:
+insta:_gabihernandez
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://media.tenor.com/57mc9TmwqWEAAAAi/corinthians.gif)
+
+  
+  
+  
